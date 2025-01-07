@@ -4,20 +4,23 @@ hace 33 minutos — Culpa Tuya 2024 Pelicula completa Ver Culpa Tuya en RePelis 
 
 | 4K UHD | 1080P FULL HD | 720P HD | MKV | MP4 | DVD | Blu – Ray | 
 
-⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘↯⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙ 
-** ►► VER AHORA ►► https://sixonemovies.com/es/movie/1156593/culpa-tuya.git **
+⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘↯⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙
 
-** ►► DESCARGAR ►► https://sixonemovies.com/es/movie/1156593/culpa-tuya.git **
+**►► VER AHORA ►► https://sixonemovies.com/es/movie/1156593/culpa-tuya.git**
 
-**Judith Flores es una chica normal. Tiene un trabajo que le apasiona, muy buenos amigos y un padre encantador. Pero su vida cambia radicalmente cuando conoce a Eric Zimmerman, dueño de la empresa donde ella trabaja. Su relación con Eric está a punto de dinamitar su vida por completo.**
+**►► DESCARGAR ►► https://sixonemovies.com/es/movie/1156593/culpa-tuya.git**
+
+**El amor entre Noah y Nick parece inquebrantable, a pesar de las maniobras de sus padres por separarles. Pero el trabajo de él y la entrada de ella en la universidad, abre sus vidas a nuevas relaciones. La aparición de una exnovia que busca venganza y de la madre Nick con intenciones poco claras, removerán los cimientos no solo de su relación, sino de la propia familia Leister. Cuando tantas personas están dispuestas a destruir una relación, ¿puede realmente acabar bien?**
+
+**Duración: 120 minutos**
 
 **Género: Romance, Drama**
 
-**Lanzamiento: 2024-11-29**
+**Lanzamiento: 2024-12-26**
 
-**Director: Megan Maxwell, Lucía Alemany, Ivy Hesh, Vivien Dakota, Marina Martín Laguna**
+**Director: Mercedes Ron, Álex de la Iglesia, Carolina Bang, Domingo González, Domingo González**
 
-**Estrellas: Gabriela Andrada, Mario Ermito, Celia Freijeiro, David Solans, Alba Ribas**
+**Estrellas: Nicole Wallace, Gabriel Guevara, Iván Sánchez, Marta Hazas, Eva Ruiz**
 
 
 Sinopsis Tras la muerte de su padre, el empresario alemán Eric Zimmerman viaja a España para supervisar las delegaciones de su empresa. En la oficina central de Madrid conoce a Judith, una joven de la que se encapricha de inmediato. Ella sucumbe a la atracción que su jefe ejerce sobre ella y acepta formar parte de sus juegos sexuales, repletos de fantasías y erotismo. Junto a él aprenderá que todos llevamos dentro un voyeur, y que las personas se dividen en sumisas y dominantes. 
